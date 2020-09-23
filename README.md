@@ -1,2 +1,0 @@
-# bemoeizorg-moordmachine
-fatal dwangverpleging
